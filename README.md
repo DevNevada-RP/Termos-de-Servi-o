@@ -1,4 +1,4 @@
-#Termos de Serviço – Nevada RP
+Termos de Serviço – Nevada RP
 
 Última atualização: 29 de junho de 2026
 
